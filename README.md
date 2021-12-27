@@ -46,5 +46,4 @@
 圣诞快乐🎁🎄
 
 ![Image](212CF46A-056F-4676-B725-F25A070D6F30.jpeg)
-[![Watch the video](https://raw.github.com/GabLeRoux/WebMole/master/ressources/WebMole_Youtube_Video.png)](http://youtu.be/vt5fpE0bzSY)
-[![asciicast](https://asciinema.org/a/42383.png)](https://asciinema.org/a/42383)
+
