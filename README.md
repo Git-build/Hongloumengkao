@@ -43,7 +43,5 @@
 "在河之洲"，不是在水中，是在小岛上,在芦苇丛中。杂草重生什么也看不清，只能凭经验和声音判断是雎鸠在叫;窈：穴幼；窕：熟女。年轻丰满的小女，君子走过去求一求。
 2021/12/20
 
-圣诞快乐🎁🎄
 
-![Image](212CF46A-056F-4676-B725-F25A070D6F30.jpeg)
-[![Watch the video](212CF46A-056F-4676-B725-F25A070D6F30.jpeg)](https://v.youku.com/v_show/id_XNDQ5NDMxMjA4.html?spm=a2hcb.profile.app.5~5!2~5~5!3~5!2~5~5~A)
+[![Watch the video](4FAA6E30-09EE-40F9-BD77-2BD1D6BED485.png)](https://v.youku.com/v_show/id_XNDQ5NDMxMjA4.html?spm=a2hcb.profile.app.5~5!2~5~5!3~5!2~5~5~A)
