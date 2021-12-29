@@ -43,6 +43,6 @@
 "在河之洲"，不是在水中，是在小岛上,在芦苇丛中。杂草重生什么也看不清，只能凭经验和声音判断是雎鸠在叫;窈：穴幼；窕：熟女。年轻丰满的小女，君子走过去求一求。
 2021/12/20
 
-Watch the Vidoe
+Watch the Video -点击图片观看 《原始物语》白登铭
 [![Watch the video](4FAA6E30-09EE-40F9-BD77-2BD1D6BED485.png)](https://v.youku.com/v_show/id_XNDQ5NDMxMjA4.html?spm=a2hcb.profile.app.5~5!2~5~5!3~5!2~5~5~A)
-点击观看
+
