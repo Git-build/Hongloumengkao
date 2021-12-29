@@ -45,5 +45,5 @@
 
 Watch the Video-点击图片观看《原始物语》白登铭
 
-[![Watch the video](4FAA6E30-09EE-40F9-BD77-2BD1D6BED485.png)](https://v.youku.com/v_show/id_XNDQ5NDMxMjA4.html?spm=a2hcb.profile.app.5~5!2~5~5!3~5!2~5~5~A)
+[![Watch the video](4FAA6E30-09EE-40F9-BD77-2BD1D6BED485.png)](IMG_2494.MP4)
 
